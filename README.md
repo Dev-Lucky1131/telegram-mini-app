@@ -12,4 +12,4 @@ Made by
 Developer Contact:
 - Telegram: @bestfriend1131
 - Skype: live:.cid.a4ed8822d96581bb
-- Discord: dfgrdtgdh
+- Discord: great_job001
